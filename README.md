@@ -1,2 +1,2 @@
 # hello-world
-sup G
+hallo hallo mannetje van de radio
